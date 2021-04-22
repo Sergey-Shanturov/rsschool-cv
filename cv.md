@@ -33,3 +33,8 @@ And I think, that it will be more difficult for me, than for others. Because I h
 
 And I don't have much time now)  
 **But I'll try to study - and I'll do it!**
+
+
+**Thank you for your school !!!**
+
+Sergey
